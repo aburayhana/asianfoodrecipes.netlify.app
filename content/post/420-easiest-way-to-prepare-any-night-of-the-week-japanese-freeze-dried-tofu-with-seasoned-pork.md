@@ -1,0 +1,89 @@
+---
+description: "Easiest Way to Prepare Any-night-of-the-week Japanese Freeze-dried Tofu with Seasoned Pork"
+title: "Easiest Way to Prepare Any-night-of-the-week Japanese Freeze-dried Tofu with Seasoned Pork"
+slug: 420-easiest-way-to-prepare-any-night-of-the-week-japanese-freeze-dried-tofu-with-seasoned-pork
+date: 2020-08-19T09:27:33.962Z
+image: https://img-global.cpcdn.com/recipes/d1c18023ca672cf8/751x532cq70/japanese-freeze-dried-tofu-with-seasoned-pork-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/d1c18023ca672cf8/751x532cq70/japanese-freeze-dried-tofu-with-seasoned-pork-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/d1c18023ca672cf8/751x532cq70/japanese-freeze-dried-tofu-with-seasoned-pork-recipe-main-photo.jpg
+author: Francis Cummings
+ratingvalue: 4.9
+reviewcount: 19265
+recipeingredient:
+- "2 piece Kouya Tofufreezedried Tofu752cm square"
+- "100 g minced pork"
+- "1 teaspoon oyster sauce"
+- "1/2 teaspoon soy sauce"
+- "1/2 teaspoon grated ginger"
+- "3 piece green onion"
+- "2 egg"
+recipeinstructions:
+- "Put Kouya Tofu in water for 30 minutes"
+- "This is Kouya Tofu"
+- "Squeeze water and cut and divide in 4 pieces"
+- "Mix well minced pork, oyster sauce, soy sauce, ginger and chopped green onion."
+- "Put meat dough on Tofu"
+- "Put it in mixed egg"
+- "Fry in oil both side till brown."
+- ""
+categories:
+- Recipe
+tags:
+- japanese
+- freezedried
+- tofu
+
+katakunci: japanese freezedried tofu 
+nutrition: 180 calories
+recipecuisine: American
+preptime: "PT15M"
+cooktime: "PT35M"
+recipeyield: "3"
+recipecategory: Dessert
+
+---
+
+
+![Japanese Freeze-dried Tofu with Seasoned Pork](https://img-global.cpcdn.com/recipes/d1c18023ca672cf8/751x532cq70/japanese-freeze-dried-tofu-with-seasoned-pork-recipe-main-photo.jpg)
+
+Hey everyone, hope you're having an amazing day today. Today, we're going to make a distinctive dish, japanese freeze-dried tofu with seasoned pork. It is one of my favorites food recipes. This time, I'm gonna make it a little bit unique. This is gonna smell and look delicious.
+
+Japanese Freeze-dried Tofu with Seasoned Pork is one of the most popular of current trending meals on earth. It's enjoyed by millions every day. It's easy, it is fast, it tastes yummy. They are nice and they look fantastic. Japanese Freeze-dried Tofu with Seasoned Pork is something that I've loved my entire life.
+
+
+
+
+To begin with this particular recipe, we have to prepare a few ingredients. You can cook japanese freeze-dried tofu with seasoned pork using 7 ingredients and 8 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Japanese Freeze-dried Tofu with Seasoned Pork:
+
+1. Get 2 piece Kouya Tofu(freeze-dried Tofu)7×5×2cm square
+1. Prepare 100 g minced pork
+1. Get 1 teaspoon oyster sauce
+1. Make ready 1/2 teaspoon soy sauce
+1. Take 1/2 teaspoon grated ginger
+1. Make ready 3 piece green onion
+1. Get 2 egg
+
+
+
+
+<!--inarticleads2-->
+
+##### Instructions to make Japanese Freeze-dried Tofu with Seasoned Pork:
+
+1. Put Kouya Tofu in water for 30 minutes
+1. This is Kouya Tofu
+1. Squeeze water and cut and divide in 4 pieces
+1. Mix well minced pork, oyster sauce, soy sauce, ginger and chopped green onion.
+1. Put meat dough on Tofu
+1. Put it in mixed egg
+1. Fry in oil both side till brown.
+1. 
+
+
+
+
+So that is going to wrap this up for this exceptional food japanese freeze-dried tofu with seasoned pork recipe. Thank you very much for your time. I'm confident you can make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to save this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
